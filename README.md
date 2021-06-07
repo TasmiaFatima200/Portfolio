@@ -14,7 +14,7 @@
 
 ## Work
 
-![Uploading port.4.PNG…](https://user-images.githubusercontent.com/83493597/121010277-428d7f00-c7a6-11eb-9d4b-8baa245e1a94.PN)
+![Uploading port.4.PNG…](https://user-images.githubusercontent.com/83493597/121010277-428d7f00-c7a6-11eb-9d4b-8baa245e1a94.PNG)
 
 ## Contact
 
